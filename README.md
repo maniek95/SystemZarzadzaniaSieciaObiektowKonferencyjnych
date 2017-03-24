@@ -1,1 +1,0 @@
-# SystemZarz-dzaniaSieciaObiektowKonferencyjnych
